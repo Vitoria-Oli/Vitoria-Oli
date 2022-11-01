@@ -1,9 +1,9 @@
-### Hi, I,am Vitoria 👩🏻‍💻✌️
+### Hi, I'am Vitoria 👩🏻‍💻✌️
 
 - 🏫 I’m currently learning in Factoría F5
 - 📫 How to reach me: vitoria.oli.san14@gmail.com 
 
-- 🥰🫰About me: 
+- 🥰🫰About me: I like to learn, work in a group and go running.
 
 
 <!--
